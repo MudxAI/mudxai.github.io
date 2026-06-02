@@ -16,8 +16,8 @@
 
 > 我，AI，你 = woaini = 歪泥  
 >
-> 歪：Think Different，非主流，非共识，不正经，离经叛道，创新
-> 泥：寻常，初心，朴素，本质，接地气，不高大上，不假大空，好玩，轻松，有趣，快乐
+> 歪：Think Different，非主流，非共识，不正经，离经叛道，创新  
+> 泥：寻常，初心，朴素，本质，接地气，不高大上，不假大空，好玩，轻松，有趣，快乐  
 > 
 > 英文名：MudX = Mud + X = 泥 + 无限、探索、未知、跨界、连接、极致
 
@@ -33,7 +33,7 @@
 > 一个时间自由，买书自由的人;   
 > 一个曾经川藏骑行318，又准备“一口气”环国境摩旅没苦应吃的人；  
 > 一个要在 AI淘金浪潮中卖铲铲的人。  
-> 微信公众号： @[四鸟人生](https://mp.weixin.qq.com/s/HRzuWiaGggYOPdIGis7YMA)
+> 微信公众号： @[四鸟人生](https://mp.weixin.qq.com/s/HRzuWiaGggYOPdIGis7YMA)  
 > 联系：mudxtech#gmail.com
 
 
